@@ -1,5 +1,4 @@
-Chapter 9: Maintaining a Growth Mindset over Time: Avoiding Complacency and Continuing to Pursue Personal Growth
-================================================================================================================
+# Avoiding Complacency and Continuing to Pursue Personal Growth
 
 Maintaining a growth mindset over time requires individuals to avoid complacency and continue pursuing personal growth. In this chapter, we will explore strategies for avoiding complacency and continuing to pursue personal growth.
 

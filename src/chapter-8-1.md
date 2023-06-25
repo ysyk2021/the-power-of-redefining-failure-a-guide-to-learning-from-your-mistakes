@@ -1,5 +1,4 @@
-Chapter 8: Building a Support System: Role of Support Systems in the Transformational Process
-=============================================================================================
+# Role of Support Systems in the Transformational Process
 
 Building a support system is essential for personal transformation and growth. In this chapter, we will explore the role of support systems in the transformational process and provide strategies for building a strong support system.
 
