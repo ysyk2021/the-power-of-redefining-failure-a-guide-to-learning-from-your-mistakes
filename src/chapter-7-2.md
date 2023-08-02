@@ -1,4 +1,4 @@
-Chapter 10: Strategies for Staying Present and Grounded During Times of Transition
+Strategies for Staying Present and Grounded During Times of Transition
 ==================================================================================
 
 In this chapter, we will explore effective strategies for staying present and grounded during times of transition. Transitions can be challenging and overwhelming, but by practicing mindfulness and implementing specific techniques, you can navigate these periods with grace and inner stability.

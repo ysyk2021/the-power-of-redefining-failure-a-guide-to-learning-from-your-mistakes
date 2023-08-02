@@ -1,4 +1,4 @@
-Chapter 8: Strategies for Developing Emotional Resilience in the Face of Failure
+Strategies for Developing Emotional Resilience in the Face of Failure
 ================================================================================
 
 Welcome to Chapter 8 of "The Power of Redefining Failure: A Guide to Learning From Your Mistakes." In this chapter, we will explore strategies for developing emotional resilience in the face of failure. By building emotional resilience, you can navigate setbacks with greater ease and bounce back stronger than ever before.
