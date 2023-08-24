@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Defining Failure and Its Impact on Personal Growth
 --------------------------------------------------

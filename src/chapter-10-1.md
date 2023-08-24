@@ -1,4 +1,3 @@
-# Recap of the Benefits of Redefining Failure
 
 As we conclude this book on the power of redefining failure, it's important to recap some of the key benefits of adopting a growth mindset when it comes to failure.
 

@@ -1,5 +1,3 @@
-Chapter 8: Building a Support System
-====================================
 
 Role of Support Systems in the Transformational Process
 -------------------------------------------------------

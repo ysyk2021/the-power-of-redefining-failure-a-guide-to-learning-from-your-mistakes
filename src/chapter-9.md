@@ -1,5 +1,3 @@
-Chapter 9: Maintaining a Growth Mindset over Time
-=================================================
 
 Maintaining a growth mindset over time is essential for personal growth and development. In this chapter, we will explore strategies for maintaining a growth mindset over time and avoiding complacency.
 
