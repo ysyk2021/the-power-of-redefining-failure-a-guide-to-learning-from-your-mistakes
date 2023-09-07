@@ -29,3 +29,4 @@
   - [Avoiding complacency and continuing to pursue personal growth](chapter-9-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
